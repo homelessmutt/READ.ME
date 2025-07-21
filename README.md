@@ -2,6 +2,6 @@
 
 StraightDemi . Male . 7teen
 
-my friend convinced me to make this so here i am.
+my girlfriend convinced me to make this so here i am.
 
 pls be patient with me i am new to everything.
