@@ -1,3 +1,4 @@
-![IMG_0135](https://github.com/user-attachments/assets/55192e1d-7f82-4be5-8375-9484c1962cac)
+<img width="220" height="122" alt="image" src="https://github.com/user-attachments/assets/786074b6-ac84-44e1-8c23-f421bd770d7b" />
+
 
 StraightDemi . female . 5teen
