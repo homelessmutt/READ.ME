@@ -1,4 +1,4 @@
-<img width="220" height="122" alt="image" src="https://github.com/user-attachments/assets/786074b6-ac84-44e1-8c23-f421bd770d7b" />
+![gravity-falls-bill-cipher](https://github.com/user-attachments/assets/d61f895e-1ba2-4b84-acc9-c5d5612e02d0)
 
 
 StraightDemi . female . 5teen
